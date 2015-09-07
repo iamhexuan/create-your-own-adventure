@@ -1,0 +1,1 @@
+Hex is a little girl who love playing game and watching anime. One day she left her house for school and met a Big Bad Woof who is looking for baby sitting job.
